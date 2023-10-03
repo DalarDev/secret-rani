@@ -1,3 +1,3 @@
-# secret rani sya palihog ayaw pindota 😆
+# secret rani sya palihog ayaw pindota!!😠
 
 https://dalardev.github.io/secret-rani/
